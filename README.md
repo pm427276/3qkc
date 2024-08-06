@@ -1,2 +1,2 @@
 # 3qkc
-https://pagisy.space/redirect/www.goodreads.com/en/book/show/101160844
+https://trafficc.72@gmail.com/
